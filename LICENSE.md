@@ -1,4 +1,4 @@
-# 
+# نهائي Deribit bot التداول امتدادات for Mac OS | نخبة Deribit bot التداول امتدادات for PC Windows. Featuring تداول العقود المستقبلية and استراتيجية العودة إلى المتوسط — optimized for maximum performance.
 
 
 
